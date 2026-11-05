@@ -1,0 +1,2 @@
+# C-NG-TY-TNHH-1-TH-NH-VI-N-Cung-ng-nh-n-l-c-Ph-t-M-
+CUNG CẤP NGUỒN LỰC NHÂN SỰ CHO CHUỖI CÁC NHÀ HÀNG KÈM THEO LÀ LAO ĐỘNG PHỔ THÔNG
